@@ -21,17 +21,17 @@ C'est ça que tu veux pour ton fils?\
 C'est comme ça que tu veux qu'il grandisse?\
 J'ai pas de conseil à donner, mais si tu veux pas qu'il glisse\
 Regarde-le, quand il parle, écoute-le!\
-Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux\
+Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux
 
-Chœur - Pablo DIOGO\
+Chœur - Pablo DIOGO
 
 Laisse pas traîner ton fils\
 Si tu ne veux pas qu'il glisse\
 Qu'il te ramène du vice\
 Laisse pas traîner ton fils\
-Si tu veux pas qu'il glisse\
+Si tu veux pas qu'il glisse
 
-JoeyStarr - Pablo DIOGO\
+JoeyStarr - Pablo DIOGO
 
 Putain, c'est en me disant "j'ai jamais demandé à t'avoir!"\
 C'est avec ces formules, trop saoulées, enfin faut croire\
@@ -52,16 +52,16 @@ Croyant la jouer fine, il ne voulait pas, ne cherchait même pas\
 Chaque jour un peu plus\
 J'avais pas l'impression d'être plus coté qu'une caisse à l'argus\
 Donc j'ai dû renoncer, trouver mes propres complices\
-Mes partenaires de glisse, désolé si je m'immisce\
+Mes partenaires de glisse, désolé si je m'immisce
 
-Chœur - Jonas DUGAIN\
+Chœur - Jonas DUGAIN
 
 Mais laisse pas traîner ton fils\
 Si tu ne veux pas qu'il glisse\
 Qu'il te ramène du viceLaisse pas traîner ton fils\
-Si tu veux pas qu'il glisse\
+Si tu veux pas qu'il glisse
 
-Kool Shen - Jonas DUGAIN\
+Kool Shen - Jonas DUGAIN
 
 Que voulais-tu que ton fils apprenne dans la rue?\
 Quelles vertus croyais-tu qu'on y enseigne?\
@@ -78,9 +78,9 @@ Sache qu'ici-bas, plus qu'ailleurs, la survie est un combat\
 D'esquives, des "shta-pow!" de putains de stonba\
 Laisse pas traîner ton fils\
 Si tu veux pas qu'il glisse\
-Qu'il te ramène du vice\
+Qu'il te ramène du vice
 
-Chœur - Pablo DIOGO\
+Chœur - Pablo DIOGO
 
 Non laisse pas traîner ton fils\
 Laisse pas traîner ton fils\
@@ -92,4 +92,4 @@ Laisse pas traîner ton fils\
 Si tu ne veux pas qu'il glisse\
 Qu'il te ramène duvice\
 Laisse pas traîner ton fils\
-Si tu veux pas qu'il glisse\
+Si tu veux pas qu'il glisse

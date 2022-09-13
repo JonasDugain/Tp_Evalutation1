@@ -14,3 +14,7 @@ Aucun d'entre nous n'a voulu recoller les morceauxToute tentative nous montrait 
 Chœur
 
 Mais laisse pas traîner ton filsSi tu ne veux pas qu'il glisseQu'il te ramène du viceLaisse pas traîner ton filsSi tu veux pas qu'il glisse
+
+Kool Shen
+
+Que voulais-tu que ton fils apprenne dans la rue?Quelles vertus croyais-tu qu'on y enseigne?Mais t'as pas vu comment ça pue dehorsMais comment ça sent la mort?Quand tu respires ça, mec, t'es comme mort-néTu finis borné à force de tourner en rondTon cerveau te fait défaut, puis fait des bondsEt c'est vraiment pas bon quand t'en perds le contrôleQuand pour les yeux des autres, tu joues de mieux en mieux ton rôleTon rôle de caillera, juste pour ne pasQu'on te dise, "Voilà tu fais plus partie de la mifa d'en bas"C'est dingue mais c'est comme çaSache qu'ici-bas, plus qu'ailleurs, la survie est un combatÀ base de coups bas, de coups de tonbaD'esquives, des "shta-pow!" de putains de stonbaLaisse pas traîner ton filsSi tu veux pas qu'il glisseQu'il te ramène du vice
